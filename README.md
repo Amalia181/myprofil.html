@@ -18,6 +18,8 @@ _Hai guys_, berikut ini sedikit penjelasan mengenai profile saya dan ketertarika
 
 ![gambar](https://cdn-brilio-net.akamaized.net/news/2019/10/08/171965/750xauto-10-cara-membuat-mie-ayam-lezat-sederhana-dan-praktis-1910085.jpg)
 
+[LinkFigma](https://www.figma.com/file/XZ6dOpHgcycegNWytH4HjL/Untitled?node-id=0%3A1)
+
 
 
 >**Note** : Perempuan juga bisa _ngoding_
